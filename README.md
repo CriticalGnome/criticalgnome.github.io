@@ -1,1 +1,0 @@
-# criticalgnome.github.io
